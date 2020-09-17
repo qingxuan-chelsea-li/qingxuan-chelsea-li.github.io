@@ -1,2 +1,2 @@
-# weite-zhang.github.io
-[Weite's Homepage](https://weite-zhang.github.io)
+# qingxuan-li.github.io
+[Qingxuan's Homepage](https://qingxuan-li.github.io)
